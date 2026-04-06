@@ -1,4 +1,4 @@
-### Hey, I'm Cynthia ✧˚ · .
+### I'm Cynthia ✧˚ · .
 
 Software engineer at DraftKings · Rutgers CS alum · learning Japanese 🇯🇵
 
